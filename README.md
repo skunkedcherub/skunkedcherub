@@ -1,43 +1,18 @@
-<p align="center">
-<haiii im kylo / calliope!
-	<p align="center">
-		haiii im kylo / calliope! (he/she/it) transmasculine
 
-<p align="center">
-<![Alt Text](https://blinkie-net.neocities.org/blinkies/8/sburb.gif)
+<p style="text-align: center;"><img src="https://blinkie-net.neocities.org/Stamps/7/alien2.png" class="fr-fic fr-dib" width="99" height="56"></p>
 
+<p style="text-align: center;"><img src="https://i.pinimg.com/736x/ca/5f/4c/ca5f4c4577e3f7c51afbdd16e7ad8172.jpg" class="fr-fic fr-dib" width="195" height="189.156"></p>
 
-<!--
-**skunkedcherub/skunkedcherub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p style="text-align: center;">kylo / calliope (he/she/it) transmasculine genderfluid</p>
 
-Here are some ideas to get you started:
+<p style="text-align: center;">u can usually find me in the homestuck area chilling ^u^ i love talking to people, i dont bite!! (seriously pls talk to me)</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-<img width="200" height="213" alt="meukri" src="https://github.com/user-attachments/assets/ce05a733-d8c9-4cba-a945-ab0277625f0d" />
+<p style="text-align: center;">im SUPER shy and prefer to be approached first if possible. as social as i am starting a convo is hard for me LMAO</p>
 
-<p align="center">
-im usually hanging around the homestuck area. please don't be afraid to say hi to me! im very social, im just really shy and prefer to be approached first. <3
+<p style="text-align: center;">i dont mind roleplays, just be normal (like dont prompt some incest shit with me or some bullshit like that EEYUCK)</p>
 
-<p align="center">
-i can usually be found as my kankri pony or maybe my other homestuck ponies! i just rlly like kankri ^u^
+<p style="text-align: center;">i tend to pretend to be afk to observe stuff happening around me. you can sit next to / near me and prompt a convo to check if im actually afk or not!</p>
 
-  <p align="center">
-i don't mind roleplays, in fact i seek them out! just dont be weird or anything please...
+<p style="text-align: center;"><img src="https://64.media.tumblr.com/9b4922cbb3847201b0ced9b3dd2ec582/36a65c59215af946-27/s400x600/d25c67e700d23bd9c86746d96245e6d4df956c7b.gifv" class="fr-fic fr-dii" width="165" height="49.5"><img src="https://64.media.tumblr.com/ae428b9b250b512618011a4c4e6f5176/36a65c59215af946-b7/s400x600/b4ffeffac6da3382fc4d141c1c6b841468473318.gifv" class="fr-fic fr-dii" width="169" height="50.6953"></p>
 
-  <p align="center">
-sometimes i look afk but im actually just spectating everything happening around me. you may sit near / in front of me and prompt a conversation to check if im really afk or not!
-
-
-
-
-
-  <p align="center">
-i try to be as respectful as possible to anyone who speaks to me, but sometimes i dont know what to say. please dont take this as me ignoring you! just be patient with me :U
+<p style="text-align: center;">I LOVE MEUKRI I LOVE MEUKRI</p>
